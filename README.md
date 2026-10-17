@@ -7,5 +7,6 @@ contact NO. 12345678987
 location. gulshan e hadeed near port qasim malir karachi
 Education. matric pass 
 kya balo 
+iphone user 
 
 
